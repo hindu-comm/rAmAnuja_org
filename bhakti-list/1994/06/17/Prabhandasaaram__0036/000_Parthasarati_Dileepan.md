@@ -1,0 +1,233 @@
++++
+title = "000 Parthasarati Dileepan"
++++
+[[Parthasarati Dileepan	Fri Jun 17 1994 - 16:24:45 PDT [Source](https://www.ramanuja.org/sri/BhaktiListArchives/Article?p=all94/0036.html)]]
+
+The complete "prabhandasaaram" is given below.  If you have Adami software
+you can view and print this in thamiz characters.  Coule of comments:
+
+1.  In each pasuram Swami dEsikan pleads with each aazvaar to grant him
+    their respective prabhandams.  However, for iraamaanusa nooRRanthaathi
+    he makes the request to Sri Ramanuja and not to Thiruvarangatthamudhanaar.
+    Don't you agree that Thiruvarangatthamudhanaar would have approved!
+
+2.  The 15th and 16th pasurams give a summary of the counts, and the 17th
+    lists the aazvaarkaL and Sri Ramanuja.  The 17th pasuram indicates
+    that there are a total of 24 prabhandams in the 4000.
+
+
+
+Regards,
+
+P. Dileepan
+
+
+-------------------------------------------------------------------------
+sri:
+
+seeronRu thoopuR RiruvENG kadamudaiyaan
+paaronRac sonna pazamoziyu - LOronRu
+thaanE yamaiyaathO thaaraNiyil vaazvaarkku
+vaanERap pOmaLavum vaazvu.
+
+srimanNnNigamaantha mahaadhEsikan aruLicceytha
+pirapanthasaaram
+
+siRapputthaniyan: eNseeraasiriyaviruttham
+
+aaraNanNaan kinporuLai yaazvaarka LaaynthadaivE
+yanbudanE yampuviyO ranaivarumee dERavenRu
+naaraNanaar thaaLkaLilE naalaayi ranthamizaa
+NnaNNiyurai seythavaRRai naadivagai thogaiseythaay
+pooraNamaa NYaaniyarsEr pongupugazth thoopulvarum
+punithanenRum piLLaiyenRum puviyarpugaz vEngadavaa
+thaaraNiyO ringugakkac saaRRiyanNaR prapanthasaaranN
+thanaiyuraitthu vaazumananN thantharuLaa yenRanakkE.
+
+aathimaRai yOthimaki zayakkirivar thammaruLaa
+lanpudanE thooppunaka ravatharitthE yinguvantha
+vaathiyarai venRuvanthu vanpuvimE lethiraasar
+vaazvuRunaR Rerisanatthai vaNmaiyuda NnEvaLartthu
+neethineRi thavaRaama Nnirutthiyidum vEngadavaa
+nEsamuda Nnaazvaarka NilaikaLaiyel laamuNarnthu
+saathusanam vaazavenRu saaRRiyanNaR prapanthasaaranN
+thanaiyuraitthu vaazumananN thantharuLaa yenRanakkE.
+
+1: aachaaryavanthanam
+aazvaarka Lavatharittha naaLoor thinga
+Ladaivuthiru naamanga LavarthaaNY seytha
+vaazvaana thirumozika LavaRRut paattin
+vagaiyaana thogaiyilakka maRRu mellaam
+veezvaaga mEthinimEl viLanga naaLum
+viritthuraikkuNG karutthudanE mikkOr thanga
+NeeLpaatha nirantharamunN thozuthu vaaztthu
+nEsamuda NnadiyEnRan NneNYsu thaanE.
+
+2: poygaiyaazvaar:
+aruNmiguttha thoruvadivaayk kacci thanni
+laippasimaa thatthiruvO Natthu naaLiR
+poruNmiguttha maRaiviLangap puviyO ruyyap
+poygaithanil vanthuthittha punithaa munnaa
+LiruLathaniR RaNkOva lidaika ziccen
+Riruvaruda NniRkavumaa lidainNe rukkath
+thiruviLakkaa menumvaiyanN thakaLi nooRuNY
+sezumporuLaa venakkaruLsey thiruntha neeyE.
+
+3: boothatthaazvaar:
+kadanmallai kaavalanE bootha vEnthE
+kaasinimE laippasiyi lavitta naaLvanN
+thidarkadiyunN thaNkOva lidaika ziccen
+RiNaiyillaa moovarumaa yisainthE niRka
+naduviliva roruvarumen RaRiyaa vaNNa
+naLLiruLin maanerukka nanthaa NYaanac
+sudarviLakkER RiyanbE thakaLi yaana
+thodainooRu menakkaruLsey thulanga neeyE.
+
+4: pEyaazvaar:
+maamayilaip pathiyathaniR Rulaamaa thatthil
+varuNYsathayath thavatharitthuk kOva looriR
+Roomuniva riruvarudan Rulanga ninRu
+thunniyapE riruNeengac sOthi thOnRac
+sEmamuda Nnedumaalaik kaaNap pukkuth
+thirukkaNdE Nnenavuraittha thEvE yunRan
+paamaruvu thamizmaalai nooRu paattum
+pazavadiyE NnukkaruLsey parama neeyE.
+
+5: thirumazisaiyaazvaar:
+thaimagatthil varumazisaip paranE maRRaic
+samayangaL palatherinthu maayO NnallaaR
+ReyvammaR Rillaiyena vuraittha vEthac
+sezumporuNaan muganRoNNooR RaaRu paattu
+meymmiguttha thiruccantha virutthap paadal
+viLangiyanNooR Rirupathunthap paaman meyyE
+vaiyakatthu maRavaama luraitthu vaazum
+vagaiyadiyE NnukkaruLsey magiznthu neeyE.
+
+6: nammaazvaar:
+munnuraittha thiruviruttha nooRu paattu
+muRaiyinvaru maasiriya mEzu paattu
+manniyanNaR porutperiya thiruvanN thaathi
+maRavaatha padiyeNpath thEzu paattum
+pinnuraittha thOrthiruvaay moziyep pOthum
+pizaiyaRavaa yiratthorunNooR Rirandu paattu
+minNnNilatthil vaikaasi visaakanN thanni
+leziRkurugai varumaaRaa virangu neeyE.
+
+7: mathurakaviaazvaar:
+thERiyamaa NYaanamudan RirukkO LooriR
+sitthiraiyiR sitthirainNaaL vanthu thOnRi
+yaaRiyanal lanbudanE kurukoor nambik
+kanavaratha mantharanga vadimai seythu
+maaRanaiyal laalenRu maRanthunN thEvu
+maRRaRiyE Nnenumathura kaviyE neemun
+kooRiyakaN NinNuNsiRutthaam bathaniR paattuk
+kulavupathi NnonRumenak kuthavu neeyE.
+
+8: kulasEkaraazvaar:
+ponpuraiyum vERkulasE karanE maasip
+punarpoosath thezilvaNYsik kaLatthuth thOnRi
+yanbudanE namperumaaL sempoR kOyi
+lanaitthulakin peruvaazvu madiyaar thanga
+Linpamigu perunguzuvuNG kaaNa maNmE
+liruLiriya venReduttha visaiyiR sonna
+nanporuLsEr thirumozinNooR Rainthu paattu
+nanRaaka venakkaruL sey nalki neeyE.
+
+9: periyaazvaar:
+pEraNintha villiputthoo raani thanniR
+peruNYsOthi thaniRROnRum perumaa NnEmun
+seeraNintha paaNdiyanRan NneNYsu thanniR
+RiyakkaRamaal paratthuvatthai thiRamaac seppi
+vaaraNamEn mathuraivalam varavE vaanin
+maalkaruda vagananaayth thOnRa vaaztthu
+mEraNipal laaNdumuthaR paattu naanooR
+Rezupatthon RiraNdumenak kuthavu neeyE.
+
+10: gOthaippiraatti:
+vEyarpugaz villiputthoo raadip poora
+mEnmElu migaviLanga vittu sitthan
+Rooyathiru magaLaayvanN tharanga Nnaarkkuth
+thuzaaymaalai mudisoodik koduttha maathE
+nEyamudan Riruppavaip paattaa Rainthu
+neeyuraittha thaiyoruthiNG katpaa maalai
+yaayapugaz nooRudanaaR patthu moonRu
+manbudanE yadiyEnuk karuLsey neeyE.
+
+11: thoNdaradippodiyaazvaar:
+mannumathit tirumaNdaNG gudithaan vaaza
+maarkazimaa thakkEttai naaLil vanthu
+thunnupukazth thoNdaradip podiyE neemun
+Ruzaaymaalaip paNiyadimai seythu naaLunN
+thennaranga maNavaaLaR kanpu mikkuc
+seppiyanNaR Rirumaalai naaRpath thainthum
+panniyanNaR RiruppaLLi yezucci patthum
+pazavadiyE NnukkaruLsey parinthu neeyE.
+
+12: thiruppaaNaazvaar:
+ulakaRiya malipugazkkaarth thigaimaa thatthi
+lurOkiNinNaa LuRanthaivaLam pathiyiR ROnRith
+thalamaLantha thennarangar paalu lOka
+saaranga maamunithO danilE vanthu
+palamaRaiyin poruLaaRpaaN perumaa LEnNee
+paathaathi kEsamathaayp paadith thantha
+solavamala Nnaathipiraan patthu paattuNY
+sOraama lenakkaruLsey thulanga neeyE.
+
+13: thirumangaiaazvaar:
+aRivutharum periyathiru mozithap paama
+laayiratthO deNpatthu naalu paattuNG
+kuRiyathoru thaaNdaganNaa lainthaa RainthuNG
+kulaanNedunthaaN dakamezukooR Rirukkai yonRuNY
+siRiyamadaR paattumuppath thetti raNduNY
+seerperiya madaRaNniRpaat tezupath thettu
+miRaiyavanE kaartthigaiyiR kaartthi kainNnNaa
+LeziRkuraiyal varukaliyaa virangu neeyE.
+
+14: sribaashyakaarar: (thiruvarangatthamuthanaar)
+thEsamelaa mukanthidavE perumpoo thooriR
+sitthiraiyi laathirainNaaL vanthu thOnRik
+kaasinimEl vaathiyarai venRa rangar
+gathiyaaka vaazntharuLu methiraa saamun
+poosurarkOn Riruvarangath thamutha Nnaarun
+ponnadimE lanthaathi yaakap pORRip
+pEsiyanNaR kalitthuRainNooR Rettup paattum
+pizaiyaRavE yenakkaruLsey pENi neeyE.
+
+15: eNNinmutha laazvaarkaN moonRu nooRu
+mezinmazisaip piraanirunNooR Rorupath thaaRu
+muNmaimiku maaRanmaRai yaayi ratthO
+duRRaviru nooRRutthoN NooRu maaRum
+vaNmaiyudai mathurakavi patthu monRum
+vaNYsiyarkO NnooRRainthum patta naathan
+paNNiyanaa NnooRRezu patthu moonRum
+paarkOthai nooRRezu patthu moonRE.
+
+16: pattharadip podipaada laimbath thainthum
+paaNarpugal patthudanE parakaa lanso
+latthanuyar vEngadamaaR kaayi ratthO
+daanaviru nooRROraim patthu moonRu
+mutthitharu methiraasar ponna dikkE
+mozinthavamu tharpaada NnooRu mettu
+metthisaiyum vaazavivar paadi vaittha
+vivainNaalaa yiramumadi yOngaL vaazvE.
+
+17: vaiyakameN poygaiboo thampE yaazvaar
+mazisaiyarkOn magizmaaRan mathura kavikaL
+poyyilpukazk kOziyarkOn vittu sitthan
+poongOthai thoNdaradip podipaa Naazvaa
+raiyanarut kaliyanethi raasar thammO
+daaRiruva rOroruvar ravarthaaNY seytha
+thuyyathami zirupatthu naaNnkiR paattin
+RogainNaalaa yiramumadi yOngaL vaazvE.
+
+18:  balasruthi:
+anthamilaa vaaraNanNaa laaki ninRa
+vathaNnkarutthai yaazvaarka Laaynthe dutthuc
+senthamizaa laruLseytha vagaitho gaiyuNY
+sinthaama lulakangaL vaaza venRu
+santhamigu thamizmaRaiyOn RooppuR ROnRum
+vEthaantha gurumozintha prapantha saaraNY
+sinthaiyinaa lanuthinamuNY sinthip pOrkkuc
+sEmamathaanN thirumaaRRan karuNai yaalE.
+
+seeraar thooppul thiruvEngadamudaiyaan thiruvadigalE saraNam

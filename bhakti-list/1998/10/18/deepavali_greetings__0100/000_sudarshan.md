@@ -1,0 +1,17 @@
++++
+title = "000 sudarshan"
++++
+[[sudarshan	Sun Oct 18 1998 - 08:21:03 PDT [Source](https://www.ramanuja.org/sri/BhaktiListArchives/Article?p=oct98/0100.html)]]
+
+Dear memebers and friends on the bhakti list,
+
+HERE'S WISHING ALL OF YOU A VERY HAPPY DEEPAVALI!
+
+IT'S BEEN GREAT KNOWING YOU ALL AND DISCUSSING MATTERS OF
+BHAGAVATH-GUNA-ANUBHAVAM. 
+
+FOR THOSE WHO HAVE HAD PRIVATE E-MAIL DISCUSSIONS WITH ME HERE'S WISHING
+YOU ALL A PERSONAL "HAPPY DEEPAVALI".
+
+DASAANU DASAN,
+SUDARSHAN

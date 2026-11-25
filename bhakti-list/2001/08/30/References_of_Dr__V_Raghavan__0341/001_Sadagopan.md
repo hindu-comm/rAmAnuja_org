@@ -1,0 +1,68 @@
++++
+title = "001 Sadagopan"
++++
+[[Sadagopan	Thu Aug 30 2001 - 19:52:22 PDT [Source](https://www.ramanuja.org/sri/BhaktiListArchives/Article?p=aug2001/0350.html)]]
+
+Hello:
+
+Yes. Dr.Raghavan gave an invited address
+at New Delhi and during that occasion of
+National Recognition , he gave  akey note
+address .That was later released as a monograph.
+This may be out of print now.
+
+I might have given away my copy of this monograph.
+A search can be made thru special libraries.
+
+Are you a Musician or a student of the Bhakthi Movement ?
+
+Best wishes,
+V.Sadagopan
+
+    At 12:31 AM 8/31/01 -0000, you wrote:
+>Wondering if Dr. V Raghavan wrote all the following information 
+>somewhere such as in a book or some other publications. 
+>
+>Would appreciate any further information and or references.
+>
+>Regards,
+>
+>Rabin Deka
+>------------------
+>
+>F.Y.I
+>
+>From: V. Sadagopan (75041.3037@compuserve.com)
+>Date: Mon Aug 11 1997 - 06:56:42 PDT 
+>
+>... ... ...
+>
+>These Saint-Singers described by the late Dr.V.Raghavan as the Great 
+>Integrators are AzhwArs of different castes or no caste , 
+>NaayanmArs , the SiddhAs , HaridAsAs of KarnAtakA ( Srinivasa 
+>Naik/Purandara dAsA , Kanaka dAsa , the shepherd by birth ,Vijaya 
+>dAsA , the Brahmin ) , the Saints of MaharashtrA ( Jnana dEvA , Nama 
+>dEvA , the tailor , EkanAth , the Sanskrit scholar , TukArAm , the 
+>shop keeper , Samartha RaamdAs , the guru of King ShivAji ) , 
+>Narasimha MehtA and MirAbai of RajasthAn , Akho , the goldsmith of 
+>Ahmedabad , Kabir , the weaver of Banares , TulasidAs of Raamanandi 
+>sect also from Banares , the cobbler-mystic , RaidAs , another fellow-
+>RaamAnadhi like Kabir and Tulasi Daas , DaadU , the Brahmin cotton-
+>cleaner , SankaradEva of Assam , RamadAs of BhadrAchalam , Saint 
+>ThyagarAjA of TamilnAdu , Mutthuswamy Dikshithar , Sridhara IyaavAL 
+>of Thiruvisanallur , Upanishadh Brahmam of Kaanchi , who was the 
+>friend of Saint ThyagarAjA's father , Sri Raama Brahmam and a 
+>multitude of others . 
+>
+>To read entire message click 
+>http://www.ramanuja.org/sv/bhakti/archives/aug97/0040.html
+
+
+
+--------------------------------------------------------------
+           - SrImate rAmAnujAya namaH -
+To Post a message, send it to:   bhakti-list@yahoogroups.com
+Archives: http://ramanuja.org/sv/bhakti/archives/
+ 
+
+Your use of Yahoo! Groups is subject to http://docs.yahoo.com/info/terms/ 

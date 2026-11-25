@@ -1,0 +1,176 @@
++++
+title = "000 V. Sadagopan"
++++
+[[V. Sadagopan	Sun Feb 16 1997 - 16:42:10 PST [Source](https://www.ramanuja.org/sri/BhaktiListArchives/Article?p=feb97/0076.html)]]
+
+Dear Members of the Prapatthi group :
+
+Please note that yesterday 's posting should have been
+numbered as Part 14.4 instead of 14.3 . Otherwise you will
+note that there are two postings ( Feb 14 and 15 ) with the 
+same numbering of part 14.3 . I regret the confusion .
+
+V.Sadagopan
+
+Verse 26 of Naadha Paddhathi / RPS Slokam  406
+
+upAsya noonam maNi PaadhukhE !
+tvAm RangEsa PaadhAmbhuja Raajahamseem I
+pathyu: prajAnAm alabhantha poorvam
+manjusvanam vaahana  RajahamsA : II
+
+(meaning ) : O Rathna Padhukhas  of RanganAthA ! 
+You are the king swans attached firmly to the lotus feet
+of your Lord. I wonder whether  the vehicle ( Vaahanam ) 
+of BrahmA , the Raja Hamsams , acquired their  sweet 
+sounding voice by worshipping you and receiving your 
+blessings . I wonder  whether you lent them your sweet voice .
+
+The inner meaning is that the Mahaans attain grand vivekam 
+by worshipping SatakOpa Maamuni of Thirukkuruhoor
+and reciting his aruLiccheyalgaL (Thiruvaimozhi ) . 
+
+Verse 27 of Naadha Paddhathi / RPS slokam 407
+
+Here Swami Desikan compares the PadhukhAs to 
+PrabhAtha Naandhee or the auspicious MantrAs 
+recited at the break of the dawn or beginning of a
+religious observance .
+
+(meaning ) : O PaadhukhE ! Your Naadham serves 
+as the Naandhee ceremony mantrams recited at the beginning of 
+the day . Your Naadham acting like Naandhee ceremony wakes up the
+jeevan , which was asleep due to the influence of the darkness 
+of MaayA that results in the Jeevan considering  the universe 
+as being outside the Supreme Lord . In this context , You act as 
+the ever-awake dawn serving as Naandhee recitation 
+through your naadham to wake up the jeevan under 
+the influence of MaayA . You are the Naandhikaree or 
+the reciter of Naandhee to awaken the jeevan 
+and start it off on its journey towards Moksham .
+
+The inner meaning of this verse is that NammAzhwAr"s
+divya Sookthis informs the confused Nitya Jeevan that there 
+is a supreme master with the divya Naamam of Sriman NaarayaNan
+and knowing him as Iswaran of ChetanAs/ Jeevans and AchetanAs
+would be the beginning of the sunrise of Moksham to dispell the 
+dark night of MaayA and Viparitha Jnaanam .
+
+Verse 28/408
+
+Here Swami Desikan refers to the Aartha Dhvani or the 
+sounds of suffering of SamsAris and how the compassionate
+PaadhukhA responds to them.
+
+(meaning ) : O PaadhukhE ! I suspect that you generate a low sound 
+(Naadham ) , when you transport RanganAthA because you do not 
+want to drown out the lamentations of  samsAris suffering from 
+the Taapa thrayams . It appears that you want to make sure that
+your Lord does not miss hearing those cries and 
+respond to them thereafter. 
+
+Verse 29/ RPS 409
+
+In this slokam , Swami Desikan refers to his own aarthi
+during  the last moments of his life on earth and appeals for the 
+mercy of the PaadhukhA .
+
+(meaning ) : O PaadhukhE ! During my last moments , I will be weak 
+and will be crying for RanganAthA to come to my bed side . He will 
+surely respond and rush to my side to allay my anxieties and help me.
+The Naadham arriving from you at that time will precede the arrival
+of the Lord Himself , whom you will be transporting . The sound of your 
+Naadham announcing the  arrival of the Lord will quench my afflictions .
+
+The prayer here is for the appearance of the AcharyAs and
+PerumAL during one's last moments (Anthima Smrithi ) .
+
+Verse 30/RPS 410 
+
+Here Swami Desikan points out that the deluded ones knowing 
+their poor lot offer saraNAgathi at the feet of SadhAchAryAs and 
+get cured of their attachment to worldly pleasures and attain 
+pakkuva JnAnam .
+
+(Meaning ) : O Paadhukhas of the Lord of Srirangam ! 
+Evolved souls hear the sweet and melodious sounds 
+(Nadham ) raised by you and use them as medicine 
+(KaashAyam ) to cure the ills arising from taste for worldly
+attachments. They hear your uplifting Naadham and 
+obtain a clear understanding of Tattva , Hita , PurushArthams
+and shake off their erstwhile temptations that beclouded their minds.
+
+Verse 31/RPS 411
+
+Here Swami Desikan refers to the majestic (UdhAra ) Naadham
+of the PaadhukhAs as they transport the Lord . 
+
+(meaning ) : O PaadhukhE ! Devotees of RanganAthA awaiting 
+His response to their appeals for protection , greet your generous
+and majestic Naadham as your Lord's affirmation of His intent 
+to come to their rescue . They respond to and welcome your 
+Naadham as OM (the PraNavam ) , the sound symbol of
+assent from your Lord .
+
+Verse 32/ RPS 412
+
+O Mother PaadhukhE ! During your joyous travels with your Lord ,
+you raise melodious sounds , which suggest as though you are 
+teaching the creation of sweet sounds to  the gems adorning the 
+ankle ornaments of Sri Devi and Bhu Devi  residing  nearby .
+
+Verse 33/ RPS 413
+
+Here , Swami Desikan states that the Naadham generated by 
+the PaadhukhAs during the transport of the Lord is like
+the svasthi Vachanams uttered by the offiicating priests. 
+
+He says : " O MaNI PaadhukhE ! When RanganAthA is ready 
+to start on His missions , you carry the lotus feet of your  Lord ,
+which have been held with affection quite often by the hands of GatrudA .
+The Naadham that you generate during those occasions is 
+uniquely plesant . This Naadham resembles the Veda Manthrams 
+associated with purificatory rites ( PunyA Vachanam ) performed 
+prior to any major religious endeavours . It appears that you 
+assume the role of the family priest , who conducts the PuNyA
+vachanam ceremonies during such occasions .
+
+The inner meaning is that the devotees recite NammAzhwAr's 
+divya Sookthis to ward off the inauspiciousness of any evil eye 
+(dhrishti dhosham ) that may be cast on the Lord .
+
+Verse 34/ RPS 314 
+
+Here Swami Desikan points out the blessings conferred
+by the PaadhukhAs through their Naadham on those , who
+elect to reside at Srirangam during their last days on this earth. 
+
+(Meaning ) : O PaadhukhE ! Some fortunate people take up 
+their residence at Srirangam to be close to you during the last
+moments of their lives on this earth . During that time , they want
+to have the peace of mind to hear your response , when they scream
+for help to rescue them from SamsAric ills and to grant them MokshA .
+They have concluded that their proximity to you will enable them 
+to hear your Naadam as the response to their appeals for help .
+You console them and give them hope with your Naadham.
+
+The inner meaning of this verse is that AchAryAs and PerumAl 
+bless the persons shaking their mortal coils at Srirangam 
+with their darsanam at their last moments.
+
+Verse 35/RPS 415
+
+(meaning ) : O PaadhukhE ! The agreeable and distinct sounds 
+(Naadham ) that you generate during your many travels with the Lord 
+during the occasions such as the visit to DuryOdhanA's court  as an
+ambassador , quelling MahA Bali's pride as VaamanA , destroying 
+ChakatAsurA through your kick ,Joyous festivals in Srirangam demonstrate
+your enduring friendship with Him . Your sounds of joy over the Lord's 
+victory during those times resemble laudatory poems proclaiming 
+His powers .
+
+O RanganAtha Divya MaNi PaadhukhE !
+Swami Desikan ThiruvadigaLE SaraNam
+Oppiliappan Koil VradAchari Sadagopan        
+
+          
